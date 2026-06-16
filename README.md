@@ -1,2 +1,2 @@
-# CYBERSTORE.NET.31200
+# CYBERSTORE.NET.html
 Sur ce site tu trouveras plusieurs méthodes qui te rendront riche ou un peu riche...
